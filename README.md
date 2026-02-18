@@ -7,5 +7,7 @@
 [Aditya_Kumar_Pathak_ Oracle_CPQ_Resume.pdf](https://github.com/user-attachments/files/25341540/Aditya_Kumar_Pathak_.Oracle_CPQ_Resume.pdf)
 [OfferLetter TCS.pdf](https://github.com/user-attachments/files/25362999/OfferLetter.TCS.pdf)
 ![Screenshot 2026-02-17 162033](https://github.com/user-attachments/assets/9e99341e-c080-4fbb-9b23-213987f466e7)
+[Performance & Rewards.pdf](https://github.com/user-attachments/files/25383904/Performance.Rewards.pdf)
+[XTRS Statement.pdf](https://github.com/user-attachments/files/25383905/XTRS.Statement.pdf)
 
 
