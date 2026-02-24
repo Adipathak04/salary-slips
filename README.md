@@ -11,3 +11,27 @@
 [XTRS Statement.pdf](https://github.com/user-attachments/files/25383905/XTRS.Statement.pdf)
 
 
+[exit mail.pdf](https://github.com/user-attachments/files/25530606/exit.mail.pdf)
+![Screenshot 2026-02-17 162033](https://github.com/user-attachments/assets/91d099ef-a1ed-4bc8-ab04-242477fdc53c)
+[OfferLetter (1).docx](https://github.com/user-attachments/files/25530602/OfferLetter.1.docx)
+[OfferLetter TCS.pdf](https://github.com/user-attachments/files/25530601/OfferLetter.TCS.pdf)
+[XTRS Statement.pdf](https://github.com/user-attachments/files/25530600/XTRS.Statement.pdf)
+[Performance & Rewards.pdf](https://github.com/user-attachments/files/25530599/Performance.Rewards.pdf)
+[dlpdf.pdf](https://github.com/user-attachments/files/25530598/dlpdf.pdf)
+[salary_slip.pdf](https://github.com/user-attachments/files/25530597/salary_slip.pdf)
+[salary_slip (1).pdf](https://github.com/user-attachments/files/25530596/salary_slip.1.pdf)
+[GF decleration.pdf](https://github.com/user-attachments/files/25530595/GF.decleration.pdf)
+[leave encashment & graduity.pdf](https://github.com/user-attachments/files/25530594/leave.encashment.graduity.pdf)
+[PF decleration.pdf](https://github.com/user-attachments/files/25530593/PF.decleration.pdf)
+[FORM 16.pdf](https://github.com/user-attachments/files/25530592/FORM.16.pdf)
+[OfferLetter (1).pdf](https://github.com/user-attachments/files/25530591/OfferLetter.1.pdf)
+[F16_FY2024-25_13359096.pdf](https://github.com/user-attachments/files/25530590/F16_FY2024-25_13359096.pdf)
+[F16_FY2024-25_13359096 (1).pdf](https://github.com/user-attachments/files/25530589/F16_FY2024-25_13359096.1.pdf)
+[Aditya_Kumar_Pathak_Oracle_CPQ_Resume.docx](https://github.com/user-attachments/files/25530588/Aditya_Kumar_Pathak_Oracle_CPQ_Resume.docx)
+[Aditya_Kumar_Pathak_Oracle_CPQ_Resume_ATS.docx](https://github.com/user-attachments/files/25530587/Aditya_Kumar_Pathak_Oracle_CPQ_Resume_ATS.docx)
+[Payslip_1335909601.pdf](https://github.com/user-attachments/files/25530586/Payslip_1335909601.pdf)
+[Last_Six_MonthPayslip_13359096.pdf](https://github.com/user-attachments/files/25530585/Last_Six_MonthPayslip_13359096.pdf)
+[Payslip_13359096.pdf](https://github.com/user-attachments/files/25530584/Payslip_13359096.pdf)
+[Payslip_13359096 (1).pdf](https://github.com/user-attachments/files/25530582/Payslip_13359096.1.pdf)
+
+
